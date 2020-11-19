@@ -1,0 +1,1 @@
+Get an Eggs crack it and put it on the Frying pan that is on the stove and wait for 3-5 minutes and then flip the egg with the spatula after that wait another 3-5 minutes and with the spatula take the egg out and put it on a plate to eat with a fork.

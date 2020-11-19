@@ -1,0 +1,1 @@
+Frying pan,eggs,spatula,oil,stove(You just need a stove is not a supply but you need a stove),plate, and a fork.
